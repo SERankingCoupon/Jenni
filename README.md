@@ -1,34 +1,43 @@
-# Jenni AI Promo Code & Coupon
-
-[![jenni ai promo code](https://github.com/user-attachments/assets/6cd25722-0420-407d-8063-e73491ba1abc)](https://jenni.ai/?via=salman-amir)
+# Jenni AI Promo Code & Coupon (60% Off)
 
 Are you looking for [Jenni AI promo code](https://jenni.ai/?via=salman-amir) to **save 60% on your plan**?
-
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
 
 ## 60% Off on All Jenni AI Plans
 
 Use the coupon code JENNI60 at checkout to get a **60% discount on any Jenni AI subscription plan**. This limited-time offer is perfect for students, writers, and teams looking for advanced AI writing help.
 
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
+## Jenni AI 30% Student Discount – Exclusive Offer
+
+Students can get **30% off Jenni AI monthly plans** through Student Beans.
+
+**How to Get It:**
+* Sign up at Student Beans and verify your student status.
+* Get your code and apply it at checkout on the Jenni AI website.
+
+## Save 40% with Jenni AI Promo Code For a Yearly Plan
+
+Choose yearly billing and get 40% off — bringing the Unlimited Plan down to just $12/month. It’s the best choice for students or anyone working on long-term academic projects, and it's a better deal than the 30% monthly discount.
 
 ## Jenni AI 30% Student Discount
 
 Students can enjoy a **30% discount** on monthly or annual plans by verifying their status through Student Beans. This exclusive offer supports academic writing needs.
 
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
+## Extra Promo Codes for Students
+
+If the **30% Student Beans discount** isn’t available, you can still save with other codes:
+
+* **RGS30** – Get **30% off** any subscription
+* **TAY20** – Get **20% off**
+
+These are great backup options if the student offer has expired.
 
 ## 20% Off Jenni AI Coupon Code 'WT10'
 
 Use the promo code WT10 to get a **20% discount** on your Jenni AI subscription. This code is popular among users and has been reported to work effectively.
 
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
-
 ## Free Plan Available
 
 Jenni AI provides a free plan that gives you 200 AI-generated words each day. You can also upload 10 PDFs, use AI autocomplete, send 10 AI chat messages, and access AI editing commands. Plus, you get 1,700 citation styles. This plan is ideal for users wanting to try out Jenni AI's features before choosing a paid subscription.
-
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
 
 ## Latest Jenni AI Discount Codes for April 2025
 
@@ -44,8 +53,6 @@ Take advantage of these working Jenni AI coupon codes to cut costs and boost you
 
 * How to Use: Apply during checkout when selecting a paid plan
 
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
-
 ### 2. Promo Code: SMART20
 
 * Discount: 20% off your annual plan
@@ -55,8 +62,6 @@ Take advantage of these working Jenni AI coupon codes to cut costs and boost you
 * Expiry Date: Subject to availability
 
 * How to Use: Enter during the payment process on the annual billing option
-
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
 
 ### 3. Promo Code: JENNI10
 
@@ -70,16 +75,13 @@ Take advantage of these working Jenni AI coupon codes to cut costs and boost you
 
 Using a Jenni AI discount code is one of the easiest ways to unlock premium tools while keeping your budget in check.
 
-[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
-
 ### More coupons
 
-* [Blaze.ai Promo Code](https://github.com/Blaze-AI-Discount/coupon)
-* [Dux-soup coupon](https://github.com/Dux-soup/coupon/)
-* [Typeform Discount Code](https://github.com/Typeform-Discount/coupon)
-* [educative coupon](https://github.com/Educative-Discount/coupon/)
-* [Hostinger Coupon Code](https://github.com/Hostinger-Deals/coupon/)
-* [kdspy coupons](https://github.com/KDSPY/coupon/)
-* [everbee promo code](https://github.com/Everbee-Discount/coupon/)
-* [jenni ai promo code](https://github.com/Jenni-AI-Discount/coupon)
-* [se ranking coupon](https://github.com/SE-Ranking/coupon)
+* [Blaze.ai Promo Code](https://github.com/williamssw/Blaze/)
+* [Dux-soup coupon](https://github.com/williamssw/Dux/)
+* [Typeform Discount Code](https://github.com/pauld34rf/Typeform/)
+* [educative coupon](https://github.com/pauld34rf/Educative/)
+* [Hostinger 20% Off Coupon Code](https://github.com/pauld34rf/Hostinger/)
+* [kdspy coupons](https://github.com/williamssw/kdspy)
+* [everbee promo code](https://github.com/williamssw/everbee/)
+* [se ranking coupon](https://github.com/SERankingCoupon/discount/)
