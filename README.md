@@ -2,9 +2,13 @@
 
 Are you looking for [Jenni AI promo code](https://jenni.ai/?via=salman-amir) to **save 60% on your plan**?
 
+[![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
+
 ## 60% Off on All Jenni AI Plans
 
 Use the coupon code JENNI60 at checkout to get a **60% discount on any Jenni AI subscription plan**. This limited-time offer is perfect for students, writers, and teams looking for advanced AI writing help.
+
+[![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
 
 ## Jenni AI 30% Student Discount – Exclusive Offer
 
@@ -14,13 +18,19 @@ Students can get **30% off Jenni AI monthly plans** through Student Beans.
 * Sign up at Student Beans and verify your student status.
 * Get your code and apply it at checkout on the Jenni AI website.
 
+[![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
+
 ## Save 40% with Jenni AI Promo Code For a Yearly Plan
 
 Choose yearly billing and get 40% off — bringing the Unlimited Plan down to just $12/month. It’s the best choice for students or anyone working on long-term academic projects, and it's a better deal than the 30% monthly discount.
 
+[![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
+
 ## Jenni AI 30% Student Discount
 
 Students can enjoy a **30% discount** on monthly or annual plans by verifying their status through Student Beans. This exclusive offer supports academic writing needs.
+
+[![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
 
 ## Extra Promo Codes for Students
 
@@ -30,6 +40,8 @@ If the **30% Student Beans discount** isn’t available, you can still save with
 * **TAY20** – Get **20% off**
 
 These are great backup options if the student offer has expired.
+
+[![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
 
 ## 20% Off Jenni AI Coupon Code 'WT10'
 
