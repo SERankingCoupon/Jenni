@@ -4,7 +4,7 @@ Are you looking for [Jenni AI promo code](https://jenni.ai/?via=salman-amir) to 
 
 [![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
 
-## 60% Off on All Jenni AI Plans
+## Jenni AI Promo Code 60% Off on All Plans
 
 Use the coupon code JENNI60 at checkout to get a **60% discount on any Jenni AI subscription plan**. This limited-time offer is perfect for students, writers, and teams looking for advanced AI writing help.
 
@@ -20,7 +20,7 @@ Students can get **30% off Jenni AI monthly plans** through Student Beans.
 
 [![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
 
-## Save 40% with Jenni AI Promo Code For a Yearly Plan
+## Jenni AI Coupon Code - Save 40%
 
 Choose yearly billing and get 40% off — bringing the Unlimited Plan down to just $12/month. It’s the best choice for students or anyone working on long-term academic projects, and it's a better deal than the 30% monthly discount.
 
@@ -32,7 +32,7 @@ Students can enjoy a **30% discount** on monthly or annual plans by verifying th
 
 [![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
 
-## Extra Promo Codes for Students
+## EJenni AI Discount Coupon for Students
 
 If the **30% Student Beans discount** isn’t available, you can still save with other codes:
 
@@ -43,7 +43,7 @@ These are great backup options if the student offer has expired.
 
 [![Discount button](https://github.com/user-attachments/assets/2cab3750-632a-4512-8633-babf85be536c)](https://jenni.ai/?via=salman-amir)
 
-## 20% Off Jenni AI Coupon Code 'WT10'
+## 20% Off Jenni AI Promo Code
 
 Use the promo code WT10 to get a **20% discount** on your Jenni AI subscription. This code is popular among users and has been reported to work effectively.
 
